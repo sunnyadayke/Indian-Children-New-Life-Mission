@@ -1,1 +1,1 @@
-# Indian-Children-New-Life-Mission
+Since 2010, Indian Children New Life Mission (ICNLM) has been committed to uplifting the lives of disadvantaged children and marginalized communities across India. Through our educational, social, and charitable programs, we strive to bring lasting change to those who need it most.
